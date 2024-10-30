@@ -1,4 +1,4 @@
 - 😉 Hi there, I'm Caterpie771881. You can also call me 柳生芽星 which is my chinese nick name
-- 😊 I am studying robot engineering at ShenZhen Univercity
+- 😊 I am studying robot engineering at ShenZhen University
 - 🥳 Programming is my hobby, and I love pixel art
 - 🤗 This is my blog website: [www.caterpie771.cn](https://www.caterpie771.cn), welcome you
